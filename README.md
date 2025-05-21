@@ -1,0 +1,1 @@
+# Effective-Management-with-Flexibility-to-Access-Authorized-Data-from-Cloud-based-IoT
